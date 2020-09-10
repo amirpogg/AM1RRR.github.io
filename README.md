@@ -1,1 +1,1 @@
-#  https://AM1RRR.github.io
+# AM1RRR.github.io
